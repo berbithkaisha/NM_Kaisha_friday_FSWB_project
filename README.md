@@ -1,1 +1,0 @@
-# NM_Kaisha_friday_FSWB_project
